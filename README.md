@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChuunibyouYuuta
+- 👋 Hi, I’m @ShinoShinohara
 - 👀 I’m interested in The Crest of Knowledge
 - 🌱 I’m currently learning ...
 
